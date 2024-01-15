@@ -8,7 +8,7 @@ Di setiap gerak, saya berusaha mengukir kisah tak terucapkan dari kehidupan, men
 
 ## 🎲 Hobi dan Ketertarikan
 
-Di balik layar, saya adalah seorang pecinta **kartu remi** yang tidak pernah bosan dengan intrik-intriknya, serta **pencinta strategi** catur yang selalu siap menantang pikiran sendiri. Bagi saya, dunia digital adalah medan pertempuran di mana ```ide-ide cemerlang bersinar```.
+Di balik layar, saya adalah seorang pecinta **kartu remi** yang tidak pernah bosan dengan intrik-intriknya, serta **pencinta strategi catur** yang selalu siap menantang pikiran sendiri. Bagi saya, dunia digital adalah medan pertempuran di mana ```ide-ide cemerlang bersinar```.
 
 ## 🌌 Perjalanan Menuju Kemerdekaan
 
